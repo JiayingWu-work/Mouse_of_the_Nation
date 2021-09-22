@@ -1,0 +1,1 @@
+The king is rewarding whoever kills the mouse his daughter and a diamond that is as big as one's head.
