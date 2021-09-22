@@ -8,3 +8,5 @@ in the kingdom. People are starving but have no way to eliminate that mouse. It 
 "Oh, my daughter. I am so sorry. I want to make food but the mouse took everything away." the mom cried, in guilt. 
 
 A day later, people found the daughter and mom, hugged each other, died in peace. 
+
+There was no hope for the nation.
