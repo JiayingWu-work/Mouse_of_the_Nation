@@ -4,5 +4,5 @@ The mouse died.
 
 Apparently, someone killed the mouse.
 
-Very good. 
+Not very good. 
 
