@@ -1,12 +1,5 @@
 Scurrying under the kitchen table, the mouse stumbled upon something.
 
-A juicy, albeit dusty, strawberry.
+A juicy, albeit dusty, apple.
 
-A shadow appears followed by a broom.
-
-Strawberry is under the shadow.
-
-A human shadow appers.
-
-A broom disappeared.
-
+A shadow appears followed by a big broom.
